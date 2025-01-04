@@ -1,4 +1,4 @@
-# Vedu APK Download: All Versions for Free - Your Complete Guide
+**Vedu APK Download: All Versions for Free - Your Complete Guide**
 
 ![Vedu APK](https://avatars.githubusercontent.com/u/193245719?s=400&u=5e8e7ba8c1a0ffbe1787ccbc14e781ec95096306&v=4)
 
