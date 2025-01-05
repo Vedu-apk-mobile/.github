@@ -4,7 +4,7 @@
 
 **Vedu APK** is an advanced video player app offering **HD, 4K**, and **Ultra HD** videos without interruptions. With features like **ad-free streaming**, **offline viewing**, and **multi-device support**, Vedu APK ensures you have a smooth movie-watching experience on Android, iOS, PC, and Mac.
 
-**🔽 [Click here to download the latest Vedu APK version. 🔽](https://www.apkbros.com/vedu-apk-download-free-latest-v1-0-9-app-a-complete-guide/)**
+## 🔽 [Click here to download 🔽](https://www.apkbros.com/vedu-apk-download-free-latest-v1-0-9-app-a-complete-guide/)
 
 ---
 
